@@ -212,4 +212,4 @@ Vampire Survivors is available as a full free version with all features and upda
 Don’t miss out on the action! Download Vampire Survivors today and experience the thrill of survival in a beautifully crafted retro world!
 
 ---
-**Last updated:** 2026-10-09 01:48:29 UTC
+**Last updated:** 2026-10-09 08:37:47 UTC
